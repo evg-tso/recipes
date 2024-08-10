@@ -1,4 +1,4 @@
-# Sausage and Rice
+# Cajun Sausage and Rice
 
 ## Ingredients
 - 500g raw sausages
